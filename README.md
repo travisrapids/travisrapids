@@ -19,10 +19,7 @@ Andrew , 21 / 06 / 2026 <3 @kennedyrobotix
 </p>
 
 <p align="center">
-  Strawpage
-</p>
-<p align="center">
-https://travisrapidly.straw.page
+  [Strawpage](https://scriptedbyivan.straw.page)
 </p>
 
 
