@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=midnightchances&color=565867&label=❤️">
+<img src="https://komarev.com/ghpvc/?username=midnightchances&color=565867&label=🪓">
 </p>
 
 <p align="center">
@@ -7,11 +7,11 @@
 </p>
 
 <p align="center">
-The realest Travis ! ^^
+The realest Ivan !
 </p>
 
 <p align="center">
-Devin , 21 / 06 / 2026 <3 @kennedyrobotix
+Andrew , 21 / 06 / 2026 <3 @kennedyrobotix
 </p>
 
 <p align="center">
