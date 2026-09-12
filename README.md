@@ -11,7 +11,7 @@ The realest Ivan !
 </p>
 
 <p align="center">
-Andrew , 21 / 06 / 2026 <3 @keybinded
+Andrew , 21 / 06 / 2026 <3
 </p>
 
 <p align="center">
